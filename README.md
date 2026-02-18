@@ -1,5 +1,15 @@
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Comfortaa&size=40&duration=4000&pause=1600&color=98FF98&center=true&vCenter=true&letterSpacing=1&width=1200&lines=꒰+THIS+IS+POISON+꒱;꒰+THANKS+FOR+700+FOLLOWERS+!+꒱;꒰+KAN+MAOMAO+꒱;꒰+MEDICINEEE+!+꒱;꒰+TAD+MAOMAO+꒱;꒰+LORD+JINSHI+!+꒱;꒰+JINMAO+CEO+꒱)](https://git.io/typing-svg)
+
 <p align="center">
-  <img src="https://i.postimg.cc/kM8dTM34/b1f7c6bd29d52b136fe84cca8b20922a.jpg" alt="Image" width="800">
+  <a href="https://kusuriya.fandom.com/wiki/Light_Novel_Volume_01">꒰ Light Novel - TAD ꒱</a>
 </p>
 
-<p align="center">I dont mind giving me cuddles ! [ I encourage you ]
+<p align="center">
+  <img src="https://i.postimg.cc/8kbZpxhT/6a2b16ec03116b8033e982bc3fb0bbfa.jpg" alt="Image" width="800">
+</p>
+
+<p align="center">
+  <a href="https://rentry.co/Maomaov">꒰Maomao-Rentry꒱</a>
+&nbsp;&nbsp;&nbsp; ⌗
+  <a href="https://Solyrvv.straw.page">꒰Strawpage꒱</a>
+&nbsp;&nbsp;&nbsp;
